@@ -1,16 +1,15 @@
-## Hi there 👋
+  ![Untitled65_20240710203425](https://i.pinimg.com/originals/e0/bd/07/e0bd0745689c370738b730f9c4978e0b.gif)   ㅤ   ㅤ
+ㅤㅤㅤㅤ[fullbroadcast](https://rentry.org/rosesforyourradio) ㅤㅤㅤ[pre-record](https://inanotheruniverse.straw.page) ㅤㅤ  ㅤ[not jazz playing? preposterous!](https://open.spotify.com/playlist/0PlUIUyudBmDDyYZh6DeWU?si=qqphGvhzRrOmUHHKKQ2bMg)
 
-<!--
-**applestatic/applestatic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ㅤㅤi'll list down the basic things you can know abt me:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 1. my pronouns are she/her, i also don't mind they/them or he/him while in character.
+ 2. i'm socially inept.
+ 3. i mostly go online at 12/2am est or 7/9am est on weekends and 5/7am est if on weekdays
+ 4. i'm a bit of an alastor and lucifer's kin so it gets crazy out here !!!^_^
+ 5. i surely don't mind ships but HELPME JS DONT TELL ME IN DETAILS (im talkin abt sexualizing) IF ITS ALASTOR ???</3
+
+that'll be all! thank you for your time!
+
+do read my rentry and strawpage if i'm still worth of time>_<!
