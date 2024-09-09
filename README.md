@@ -3,4 +3,4 @@
   ㅤ*this fandom has a grip on me:/*
 
 
-ㅤㅤㅤ[*my rentry*](https://rentry.org/rosesforyourradio)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[loser strawpage](https://inanotheruniverse.straw.page/)
+ㅤㅤㅤ[*my rentry*](https://rentry.org/rosesforyourradio)ㅤㅤㅤㅤㅤㅤㅤ[loser strawpage](https://inanotheruniverse.straw.page/)
