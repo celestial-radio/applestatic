@@ -1,2 +1,2 @@
-  ![Untitled65_20240710203425](https://media.tenor.com/mhouvHOejxwAAAAM/alastor-hazbin-hotel.gif)   ㅤ   ㅤ
-*dear heavens, do NOT sexualize alastor while talking to me.*
+  ![Untitled65_20240710203425](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS2-hdG-SPyEBMeTMOuwhlJ1FmZVLF4VexArQ&s)   ㅤ   ㅤ
+  wip
