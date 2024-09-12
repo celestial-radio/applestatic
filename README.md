@@ -2,4 +2,4 @@
   ㅤ   ㅤ
   ㅤ*an alastor and a lucifer enthusiast!*
  
-ㅤㅤㅤ[*my rentry*](https://rentry.org/rosesforyourradio)ㅤㅤㅤㅤ[loser strawpage](https://inanotheruniverse.straw.page/)
+ㅤㅤㅤ[*my rentry*](https://rentry.org/rosesforyourradio)ㅤㅤㅤㅤ[strawpage](https://neverloveanarcissist.straw.page)
