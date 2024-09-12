@@ -2,5 +2,6 @@
   ㅤ   ㅤ
   ㅤ*an alastor and a lucifer enthusiast!*
 
+  (get bill of out of mind)
 
 ㅤㅤㅤ[*my rentry*](https://rentry.org/rosesforyourradio)ㅤㅤㅤㅤ[loser strawpage](https://inanotheruniverse.straw.page/)
